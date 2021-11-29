@@ -1,0 +1,4 @@
+# Divine-Father-
+Religious and Philosophical Concepts of Divine Parenthood in Antiquity
+
+The present volume is devoted to the theme of "Divine Father" in Second Temple Jewish and early Christian tradition and in its ancient pagan contexts. It brings together proceedings of a conference under the same title, held in Göttingen in September 2011. Selected articles by well-known scholars focus on religious and philosophical concepts of divine parenthood in antiquity, from the Hebrew Bible and Second Temple Judaism (the Dead Sea Scrolls, Targums, Philo and Josephus) to the field of the New Testament. In addition, the volume deals with the designation of deity as "father" or "mother" from the broad spectrum of ancient Egypt and classical antiquity (Homer, Hesiod, Plato, and its reception) to late antiquity (Plotinus and Porphyry).
